@@ -1,2 +1,1 @@
-# Digital-Marketing-Team-Project
-Natural cosmetics digital marketing team project
+https://canva.link/tnb8gxx8zrws8ey
